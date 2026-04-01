@@ -71,4 +71,4 @@ El análisis permitió definir estrategias financieras críticas:
 **¿Buscas optimizar la rentabilidad de tus campañas o mejorar la eficiencia de tus presupuestos mediante datos?**
 
 📬 **Correo:** edgar.apple08@gmail.com  
-💼 **LinkedIn:** [Edgar Emmanuel Estrella Cruz](https://www.linkedin.com/in/tu-perfil-aqui/)
+💼 **LinkedIn:** [Edgar Emmanuel Estrella Cruz](https://www.linkedin.com/in/edgar-emmanuel-estrella-cruz-1114303a3/)
